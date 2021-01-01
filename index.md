@@ -42,3 +42,11 @@ Pranitha created a YouTube Channel Subscribers base around 70k and achieved a po
 
 ~•• For any queries ••~
 Feel free to contact Pranitha reach out via LinkedIn message at anytime.
+
+Courses
+Data Science Specialization
+ 98%
+Machine Learning
+ 95%
+Natural Language Processing Specialization
+ 98%
