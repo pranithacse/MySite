@@ -40,3 +40,5 @@ Pranitha created a YouTube Channel Subscribers base around 70k and achieved a po
 
 ~•• For any queries ••~
 Feel free to contact Pranitha reach out via LinkedIn message at anytime.
+
+My LinkedIn - https://in.linkedin.com/in/pranithajgd
